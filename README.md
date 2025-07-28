@@ -13,7 +13,7 @@ Data Entry
 Google Workspace & Microsoft Office
 Scheduling, Calendar & Email Management
 
-**Professional Experience******
+**Professional Experience**
 **HealthyBOS – Customer Service**
 Handled inbound and outbound healthcare-related inquiries.
 Ensured accurate patient record handling and data validation
