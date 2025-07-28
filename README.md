@@ -51,4 +51,4 @@ Highly adaptable, proactive, and a quick learner
 Email: loveine0607@gmail.com
 Phone: 09761513665
 Location: Philippines Open to Remote Opportunities
-LinkedIn / Online Profile: [(https://www.linkedin.com/in/vanessa-rose-pancho-1b352a216/)](url)
+LinkedIn / Online Profile: [(https://www.linkedin.com/in/vanessa-rose-pancho-1b352a216/)]
